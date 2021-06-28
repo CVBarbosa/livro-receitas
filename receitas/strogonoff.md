@@ -12,7 +12,7 @@
 
   
 
-### modo de preparo
+### modo de preparop
 
 Em uma frigideira grande, derreta 3 colheres (sopa) de manteiga e doure o frango, aos poucos, em fogo alto.
 
