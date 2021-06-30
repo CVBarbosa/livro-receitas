@@ -5,3 +5,4 @@
 
 
 - Strogonoff de frango
+- Frango a passarinho
