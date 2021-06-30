@@ -6,4 +6,4 @@
 
 - Strogonoff de frango
 - Frango a passarinho
-- Parmegianaaaaa
+- Parmegiana
